@@ -1,0 +1,1 @@
+# Veri-Taban-Y-netim-Sistemleri-2026-Projesi
